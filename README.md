@@ -6,7 +6,6 @@ Black is the best color!
 
 2. What is the most annoying sound?
 
-The most annoying sound is my ex's voice. 
 - Little kids on fortnite
 
 3. Which culture has the best food?
