@@ -15,3 +15,5 @@ Guyanese Culture.
 All American
 
 5. Who is the strongest anime character?
+
+- Saitama
